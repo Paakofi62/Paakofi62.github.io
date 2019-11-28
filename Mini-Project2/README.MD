@@ -1,0 +1,1 @@
+# Kofi Otu-Manteaw MiniProject
